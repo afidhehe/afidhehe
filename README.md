@@ -1,4 +1,4 @@
-Im Afid
+I'm the certified survivors
 
 <!---
 afidhehe/afidhehe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
